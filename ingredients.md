@@ -1,4 +1,7 @@
 ## Ingredients:
+
+Let's begin!
+
 - 8 ounces dry pasta I used Toscani-shaped pasta
 - Kosher salt
 - 1/3 cup extra virgin olive
@@ -16,3 +19,5 @@
 - 1/3 cup chopped walnuts
 - black pepper to taste
 - Red pepper flakes to taste (optional)
+
+Enjoy my recipe!
